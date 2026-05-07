@@ -1,4 +1,4 @@
-
+Experience bee swarm simulator like never before with vip Script for bee swarm simulator, the #1 Script. Includes auto-farm and no cooldown for
 
 
 
